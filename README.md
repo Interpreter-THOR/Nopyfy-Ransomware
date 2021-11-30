@@ -18,7 +18,7 @@
 <h1 align="center" > This is paid Tool and Buy it from here </h1>
 <h2 align="center" >🎀 Use Coupon 🎀  - INT12 (12% Off) </h2>
 
-<h2> By Now - https://shop.infutureworld.xyz/item/138/nopyfy-ransomware-open-source-ransomware-with-advanced-features-and-with-service</h2>
+<h2> Buy Now - https://shop.infutureworld.xyz/item/138/nopyfy-ransomware-open-source-ransomware-with-advanced-features-and-with-service</h2>
 
 
 
@@ -55,7 +55,7 @@ Click here for more contact option - [Contact](https://infutureworld.xyz/a/conta
 
 ### 🎀 Use Coupon 🎀  - INT12 (12% Off)
 
-<h2> By Now - https://shop.infutureworld.xyz/item/138/nopyfy-ransomware-open-source-ransomware-with-advanced-features-and-with-service</h2>
+<h2> Buy Now - https://shop.infutureworld.xyz/item/138/nopyfy-ransomware-open-source-ransomware-with-advanced-features-and-with-service</h2>
 
 
 
@@ -146,7 +146,7 @@ Trojan Rat Builder(348), Ransomware Builder(17), Crypter(110), Miner(9), Worm(8)
 
 ## Buy it from here
 
-<h4> By Now - https://shop.infutureworld.xyz/item/139/gh-hacking-tool-kit-1560</h2>
+<h4> Buy Now - https://shop.infutureworld.xyz/item/139/gh-hacking-tool-kit-1560</h2>
 
 #### Contact Us - [Contact](https://infutureworld.xyz/a/contact.html)
 
@@ -165,7 +165,7 @@ This is Basic Tools for beginners or hacker. This Pack included - Trojan Rat Bui
 ## Buy it from here
 
 
-<h4> By Now - https://shop.infutureworld.xyz/item/137/hacking-tools-pack</h2>
+<h4> Buy Now - https://shop.infutureworld.xyz/item/137/hacking-tools-pack</h2>
 
 #### Contact Us - [Contact](https://infutureworld.xyz/a/contact.html)
 
@@ -185,7 +185,7 @@ Small stub size,Loader accept encryption Like botnets, Rats,Bypass UAC,Delete Sh
 ## Buy it from here
 
 
-<h4> By Now - https://sellix.io/product/6158dd61f18f1</h2>
+<h4> Buy Now - https://sellix.io/product/6158dd61f18f1</h2>
 
 #### Contact Us - [Contact](https://infutureworld.xyz/a/contact.html)
 
